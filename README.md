@@ -1,3 +1,4 @@
-### Hi there! I'm Alex! 😄
+### Hi there! I'm Alex 😄
 
-*Empty*
+### About me:
+In progress...
